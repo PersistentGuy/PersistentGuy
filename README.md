@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @PersistentGuy
 - 👀 I’m obsessed with Python and coding
 - 🌱 I’m currently learning C, Python
-- 💞️ I’m looking to collaborate on anything at any given time
+- 💞️ You want to colaborate with me? idk ask me maybe it's your lucky day.
 - 📫 How to reach me bobmarley2021@outlook.fr
 
 <!---
