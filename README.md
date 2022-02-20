@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @PersistentGuy
-- 👀 I’m obsessed with Python and coding
+- 👀 I’m ...
 - 🌱 I’m currently learning C, Python
 - 💞️ You want to colaborate with me? idk ask me maybe it's your lucky day.
 - 📫 How to reach me bobmarley2021@outlook.fr
